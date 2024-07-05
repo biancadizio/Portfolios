@@ -1,4 +1,4 @@
-# Artes em design gráfico desenvolvidas por mim durante o período de trabalho na loja Doce Amor
+# Artes em design gráfico desenvolvidas por mim para lojas comerciais no geral
 
 # Dentre elas estão:
 
